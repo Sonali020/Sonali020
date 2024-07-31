@@ -1,3 +1,3 @@
 Hello myself Sonali Patil.
-I'm currently pursuing a degree of B.E. in Information Technology at MET Bhujbal Knowledge City
+I'm a passionate student, currently pursuing a degree of B.E. in Information Technology at MET Bhujbal Knowledge City.
 
